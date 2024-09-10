@@ -8,6 +8,7 @@
 - 1 lime
 - 1 tsp salt
 - 1/2 onion
+- 1/2 tomato
 - 1 Tbsp cilantro
 
 
